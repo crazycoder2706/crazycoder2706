@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @crazycoder2706
+- I want to become the development in the future
